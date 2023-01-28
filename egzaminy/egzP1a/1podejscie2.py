@@ -1,0 +1,210 @@
+
+-milestone – kamień milowy, ważne osiągnięcie lub krok w dużym przedsięwzięciu
+-to be due next week – mieć termin realizacji na przyszły tydzień
+-delay – opóźnienie, zwłoka
+-purchase – zakup
+-approval – zatwierdzenie, zgoda
+-feasibility – wykonalność
+-apart from=except for  – oprócz
+-to get / got - got things back on track – przywrócić sprawy na właściwe tory
+-pretty smoothly – dość gładko
+-red tape – oficjalne przepisy, które wydają się niepotrzebne i które spowalniają realizację planów
+-according to – według
+-despite=in spite of – pomimo, mimo czegoś
+-behind schedule – z opóźnieniem, poza terminarzem
+-due to=because of – z powodu
+- to crash/-ed  the schedule – złapać tempo prac, przyspieszyć
+-delivery date – data oddania prac, realizacji zadania
+- to run/ran-run activities – prowadzić  działania
+-to be going round in circles – chodzić w kółko, nie posuwać się naprzód
+-to apply/-ied – zastosować, zaaplikować
+-instead – zamiast
+- it’s generally recognized – jest ogólnie wiadomo
+-to complain/-ed – skarżyć się, narzekać
+-largely ineffective – wielce nieskuteczne
+- to remain/-ed – pozostać, pozostawać
+- emotional commitment – emocjonalne zaangażowanie, oddanie
+-determined passion – pasja i zdeterminowanie, upór
+-to accomplish/-ed – osiągnąć, dokonać
+-to involve/-d – angażować, wciągać
+-to overcome/-came-come – pokonać, przezwyciężyć
+-physical shortcomings – fizyczne niedostatki
+-superior – lepszy, wyższy (rangą, jakością)
+-to hold/held-held  accountable – czynić odpowiedzialnym
+-to lose/lost-lost  sb’s temper – tracić cierpliwość, opanowanie
+-there’s no getting around it – nie ma drogi na skróty
+- to be a lot better off – o wiele lepiej na czymś wychodzić
+- to start from scratch – zaczynać od zera, samego początku
+- bully – tyran, ktoś znęcający się nad słabszymi
+- leader – przywódca
+- maverick – osoba uważana za niezależną i nieprzewidywalną
+- team player – członek grupy, osoba dobrze współpracująca w grupie
+- workaholic – pracoholik
+- to impose/-d – narzucać
+- to fit/-ted in – wpasowywać się, dopasowywać się
+- annual appraisal – roczna ocena (pracownika)
+- to tend/-ed to do sth  - mieć tendencję do robienia czegoś
+- to pass/-ed the buck – (idiom) zwalać na kogoś robotę
+- not to pull sb’s weight – (idiom) obijać się, unikać ciężkiej pracy
+- to let/ let-let  sb down – zawieść kogoś, rozczarować
+- to burn/-ed; also: burnt-burnt  out – wypalić (się)
+- to get/got-got on well with sb –  dogadywać się dobrze, mieć z kimś dobre relacje
+- to pull / -ed together – ciężko pracować razem, współpracować
+- to cover / -ed for sb – zastępować kogoś, kryć kogoś
+- to be / was - were - been in danger of…  - być narażonym na…
+- to succeed / -ed – odnieśc sukces, udać się
+- end-user – odbiorca końcowy, konsument
+- key stakeholders – kluczowi gracze, udziałowcy
+- deliver/-ed  on time – dostarczyć na czas
+- within budget – w ramach założonego budżetu
+- to involve/d – zaangażować, wciągnąć
+- civil engineering – inżynieria budownictwa lądowego i wodnego
+- environmental protection – ochrona środowiska
+- milestone – kamień milowy, punkt krytyczny
+- timeframe – ramy czasowe
+- due to =because of – z powodu, ze względu na
+- in the end=finally – ostatecznie, w końcu
+-regret/-ed – żałować czegoś; (rzecz.) żal, ubolewanie
+-to speculate/-d -  spekulować, domyślać się
+-to result/-ed  - być wynikiem, rezultatem, wyniknąć
+- to avoid/-ed – unikać, uniknąć
+-to design/-ed – projektować, zaprojektować
+-to resist/-ed – dać odpór, opierać się czemuś, wytrzymać
+-businesses (plural!) – firmy, przedsiębiorstwa
+-to downshift – wybrać mniej atrakcyjną posadę, by mieć więcej czasu, „obniżyć loty”
+-to enjoy/-ed – lubić coś, cieszyć się czymś
+-to join/-ed – przyłączyć się, wstąpić do np. grupy
+-accountancy firm – firma rachunkowa
+-constant pressure – ciągła presja
+- appropriate – właściwy, odpowiedni
+-to turn/-ed sth down – odmówić, odrzucić
+-slow pace – wolne tempo
+-to run/ran-run  the business – prowadzić biznes
+-under pressure – pod presją
+-to quit/-ted – zostawić, zakończyć, przestać
+-well-paid – dobrze płatny
+-to get used to – przyzwyczaić się do
+-to be used to – być przyzwyczajonym do
+-to use/-d  to do – mieć w zwyczaju coś robić w przeszłości
+-to fire/-d – zwolnić, wyrzucić z pracy
+-to supervise/-d – nadzorować
+-to identify/-ied – zidentyfikować
+-cause – przyczyna, powód
+-promotion – awans
+-procedures – procedury
+-coaching – trening, szkolenie
+-constructive criticism – konstruktywna krytyka
+-to make/made-made  contact – nawiązać kontakt
+-to set/ set-set – wyznaczyć, ustalić, ustanowić
+-to express/-ed – wyrazić, wypowiedzieć
+-consequences – konsekwencje, skutki
+-to commit/-ted – zobowiązać kogoś
+-to recognize/-d  merit – uznać, zauważyć zasługi
+-to refer/-red – odnieść się do czegoś, nawiązać
+-give praise – pochwalić, dać pochwałę
+- to appreciate/-d – doceniać
+-to point/-ed out  - wskazać, pokazać, wytknąć
+-to contribute/-d – przyczynić się, wnieść swój wkład
+-to let/let-let  sb know – dać znać, poinformować
+-to go/went-gone  into details – zagłębiać się w szczegóły
+-to mess/-ed  up – nabałaganić, namieszać, zepsuć coś, źle postąpić
+- to set/set-set objectives – wyznaczyć cele
+-to get/got-got  back to sb – skontaktować się z kimś
+-to get/got-got  on – dawać sobie radę, robić postępy
+-to be/was, were-been  off sick – być na zwolnieniu chorobowym
+-to take /took-taken  care – opiekować się, przypilnować
+-to stay/-ed late  - zostawać dłużej w pracy, pracować dłużej
+- to count/-ed on sb – liczyć na kogoś, polegać na kimś
+-to lose/lost-lost  patience - stracić cierpliwość
+-to set an example – dawać przykład
+-under pressure – pod naciskiem, presją
+-to reduce/-d tension – zredukować, obniżyć napięcie
+-to establish/-ed dialogue – nawiązać dialog
+-performance appraisal – ocena okresowa wyników pracy (pracownika)
+-to benefit/-ed – odnieść korzyść, skorzystać
+-strengths and weaknesses – mocne i słabe strony
+-to review/-ed – skomentować, przejrzeć, zrecenzować
+-progress –postęp
+-to set/set-set (out) – wyznaczyć, ustalić, ustanowić
+-achievable goals – osiągalne cele
+-to state/-d – stwierdzić, wyrazić
+-findings – rezultaty (badań, ankiety)
+-recommendations – zalecenia, rekomendacje
+-attitude- podejście, nastawienie
+-to be/was,were-been  held – być organizowane np. spotkania
+-to engage/-d – zaangażować, wciągnąć
+-to cover/-ed – kryć, przykryć, obejmować (tematy)
+- to gather/-ed – zbierać, gromadzić (się)
+-to adopt/-ed – przyjąć, zaadoptować
+-external consultant – zewnętrzny konsultant
+-regarding – odnośnie, w sprawie
+-areas of concern – sprawy, które mogą wzbudzać zaniepokojenie
+-to reveal/-ed – ujawnić
+-to recognize/-d – uznać, rozpoznać, szanować
+-to improve/-d – polepszyć, poprawić
+-tight schedule – napięty plan, rozkład
+-approach – podejście, nastawienie
+-to reduce/-d – zredukować, zmniejszyć
+-staff turnover – rotacja pracowników
+-to increase/-d – podnieść, zwiększyć
+-to foster/-ed – wytworzyć, wykształcić
+-to express/-ed – wyrazić, wypowiedzieć się
+-to complete/-d – uzupełniać, kompletować
+- to invite/-d – zaprosić, zapraszać
+-to touch/-ed  on – dotykać, poruszać (zagadnienia)
+-objective measurement – obiektywna miara
+-to allocate/-d – przyznawać, wyznaczać, dawać
+-target – cel
+-to reach/-ed – osiągnąć, dotrzeć
+-to approve/-d – pochawalać, zaakceptować, zatwierdzić
+-to draw/drew-drawn  conclusion  - wyciągać wnioski
+-ethical standards – normy etyczne
+-cultural differences – różnice kulturowe
+-to operate/-d – działać, prowadzić działalność, obsługiwać
+-to determine/-d – wpływać na, determinować
+-to become accustomed – przyzwyczaić się
+-fully automated – w pełni zautomatyzowane
+-polite welcome – uprzejme pozdrowienie, powitanie
+-to sit/sat-sat  back – usiąść, zrelaksować się i nie angażować się w to, co się dzieje
+-forecourt staff – personel obsługujący podjazd np. hotelu, warsztatu
+-few- fewer - the fewest – (rzecz. policzalne) mało, mniej, najmniej
+-highly profitable – wysoce zyskowne
+-government- regulated – regulowane przez rząd
+-crucial factor – decydujący, kluczowy czynnik
+-priority – priorytet
+-to aim/-ed – mieć na celu, celować
+-to keep/kept-kept +-ing  - stale, ciągle coś robić
+-to handle sb with kid gloves – obchodzić się z czymś/kimś delikatnie
+-to go/went-gone over to the competition – przejść do konkurencji
+-company-owned – posiadane przez firmę, będące własnością firmy
+-fact-finding trip – wycieczka, delegacja której celem jest zdobycie informacji
+-to be way behind schedule – daleko w tyle, bardzo opóźniony w stosunku do planu
+-to have/had-had a word with sb– zamienić słowo z kimś
+-to turn / -ed out – okazać się, wyniknąć
+-to sort/-ed  it out – uporządkować, poukładać, rozwiązać problem
+-I could do with sth – przydałoby mi się coś, potrzebowałbym
+- as a result of – jako skutek, w wyniku
+-to sack/-ed =to fire – wyrzucić z pracy
+-to hire/-d =to take on – zatrudnić
+-to pull/-ed together – razem pracować, współpracować
+-regular customer – stały klient
+-to put up with sth – tolerować, wytrzymać
+-to pay / paid - paid attention to sth – zwracać uwagę na coś
+-to work my fingers to the bone –(idiom) harować, wypruwać sobie żyły
+-to do/did-done my best – robić wszystko co możliwe, starać się mocno
+-to delegate/-d – oddelegować, przekazywać np. pracę komuś innemu
+-to fall/fell-fallen behind schedule – opóźniać się w stosunku do planu
+-to mean/meant-meant – znaczyć, oznaczać, mieć na myśli
+-to intend/-ed – mieć w planie, zamierzać
+-to promote/-d – awansować, promować
+-to be aware – być świadomym
+-to authorize/-d – autoryzować, zatwierdzić
+-to interfere/-d – wtrącać się
+-to let/let-let – pozwolić
+-to manage/-d – załatwiać, dawać radę, kierować
+-since=because – ponieważ
+-to appreciate/-d – doceniać
+-to deal/dealt-dealt  with – zająć się, radzić sobie; handlować
+-advice(rzecz.) – rada
+- to advise / -d – radzić, doradzać
+-to affect/-ed – wpłynąć, oddziaływać
